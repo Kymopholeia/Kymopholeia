@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kymopholeia
+- 👋 Hi, I’m @Kyru
 - 👀 I’m interested in meatsoup
 - 🌱 I’m currently learning strange things
 - 💞️ I’m looking to collaborate on something i can learn from
